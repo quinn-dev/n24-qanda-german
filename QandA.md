@@ -47,7 +47,7 @@ Es gibt viele langfristige gesundheitliche Folgen von Schlafentzug. Diese könne
 
 ### Wie sieht es mit chronischer Müdigkeit aus?
 
-Viele Personen mit Non-24 fühlen sich wachsam und ausgeruht, wenn sie schlafen können, wann ihr Körper es verlangt. Andere jedoch sind chronisch müde, selbst dann, wenn sie schlafen können, wie es es ihr zirkadianer Rhythmus vorgibt. Die Forschung deutet darauf hin, dass manche ihrer inneren Systeme mit anderen nicht synchronisiert sein könnten – zum Beispiel könnte ihr Verdauungssystem nicht mit dem Schlaf-Wach-System synchronisiert sein, ähnlich wie bei Jet Lag.
+Viele Personen mit Non-24 fühlen sich wachsam und ausgeruht, wenn sie schlafen können, wann ihr Körper es verlangt. Andere jedoch sind chronisch müde, selbst dann, wenn sie schlafen können, wie es ihr zirkadianer Rhythmus vorgibt. Die Forschung deutet darauf hin, dass manche ihrer inneren Systeme mit anderen nicht synchronisiert sein könnten – zum Beispiel könnte ihr Verdauungssystem nicht mit dem Schlaf-Wach-System synchronisiert sein, ähnlich wie bei Jet Lag.
 
 ### Wie viele Personen sind betroffen?
 
